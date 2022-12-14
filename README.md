@@ -1,6 +1,6 @@
-- It me, Triplestar (@3plestar)
-- Imma code or something. Or maybe I won't.
-- I also do art. Check me out on twitter, where the 3 in my @ is in a different spot: @tripl3star. 
+- It is I, Triplestar (@3plestar)
+- I am gonna be a coding proffessional. (hopefully)
+- I also do art whenever I feel like it. Check my Deviantart: TriplestarUltra.
 - Or don't.
 
 <!---
